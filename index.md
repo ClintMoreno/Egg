@@ -1,6 +1,7 @@
 # Tutorial on How to cook an EGG
 
-###   Having an egg for breakfast is quite important if you want to live a healthy life. Eggs contain nutrients that help us be nutritionally rich. It has protein that reduces appetite and hunger levels.
+###   Having an egg for breakfast is quite important if you want to live a healthy life. Eggs contain nutrients that help us be nutritionally rich. It has protein that reduces appetite and hunger levels. Everyone likes egg when they wake up and here is a tutorial on how to cook one. Follow the steps and you will have a jolly breakfast.
+
 
 <img src="https://www.jessicagavin.com/wp-content/uploads/2020/09/how-to-fry-an-egg-3-1200.jpg"/>
 
@@ -30,3 +31,4 @@
 <img src="https://weelicious.com/imager/weelicious_com/wp-content/uploads/2015/04/Crispy-Fried-Egg-1_1b74faffbe944b0675f0e20473d3ad34.jpg"/>
 
 
+## Make sure to serve with bread and coffee to consume a magnificent and yummy meal.
