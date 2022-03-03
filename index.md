@@ -17,5 +17,14 @@
 
 <img src="http://www.simplyscratch.com/wp-content/uploads/2019/08/Best-Fried-Egg-Sandwich-l-SimplyScratch.com-breakfast-sandwich-eggs-cheese-best-4-700x1049.jpg"/>
 
+## STEP 4
+#### Wait until desired crisp is achieved. 
+
+<img src="https://iamafoodblog.b-cdn.net/wp-content/uploads/2019/01/how-to-make-crispy-fried-eggs-5714.jpg"/>
+
+## STEP 5
+#### Serve your Egg.
+
+<img src="https://weelicious.com/imager/weelicious_com/wp-content/uploads/2015/04/Crispy-Fried-Egg-1_1b74faffbe944b0675f0e20473d3ad34.jpg"/>
 
 
